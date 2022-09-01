@@ -1,2 +1,1 @@
 - 👋 Hi, I’m Nicole Vu
-- Check out my portfolio at www.nicolevu.com
